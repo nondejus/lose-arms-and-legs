@@ -1,2 +1,14 @@
 # bemoeizorg-lose-arms-and-legs
 2002-2021 amputations onder dwang in the netherlands
+
+# bouman ggz
+https://nl.wikipedia.org/wiki/Bouman_GGZ
+
+# bemoeizorg
+https://nl.wikipedia.org/wiki/Bemoeizorg
+
+# amputation
+https://de.wikipedia.org/wiki/Amputation
+
+# isokeercel
+https://nl.wikipedia.org/wiki/Isoleercel
